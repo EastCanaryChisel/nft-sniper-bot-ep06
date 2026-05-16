@@ -1,4 +1,4 @@
-# 
+# top nft sniper bot | royalty-calculator + NFT-sniping offers the most advanced nft sniper bot, with royalty-calculator and NFT-sniping. Ideal for professional NFT traders and
 
 
 
